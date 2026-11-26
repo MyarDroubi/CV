@@ -1,2 +1,2 @@
 # CV
-My professional CV
+My professional CV.
